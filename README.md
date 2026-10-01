@@ -1,2 +1,0 @@
-# TRASHROBOT
-Wowah!!
